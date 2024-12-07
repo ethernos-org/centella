@@ -1,3 +1,3 @@
 # centella
-Notas de contemplación y discernimiento
-David Gámez 2024
+Notas de contemplación y discernimiento  
+_David Gámez 2024_
